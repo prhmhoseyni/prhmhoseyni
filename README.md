@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **prhmhoseyni@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/prhm](https://www.linkedin.com/in/prhm)
+- 📄 Know about my experiences [https://www.linkedin.com/in/prhmhoseyni](https://www.linkedin.com/in/prhmhoseyni)
 
 <br />
 
